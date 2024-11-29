@@ -1,3 +1,2 @@
 # hello-world
-just a classic jerk off repository
-meh, the damned guide told me to write about myself but fuck that
+bit coarse language before, I do not know what had gotten into me
